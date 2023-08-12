@@ -3,14 +3,22 @@ An inspiration for the spy.
 
 
 0 group, company, off, zero, null or organization
+
 1 yes, single, no, person, negative, positive, on, one or first
+
 2 yes, no, positive, negative, couple, two, second or after
 3 order, police, military, agency, family, three, holy, intelligence or informer
+
 4 negative, criminal, unholy, four, mafia, cartel or gang
+
 5 handicap, five, espionage, spy or intel
+
 6 unholy, six, satanist, demon, terror, killer, terrorist or weapons
+
 7 lucky, seven or holy
+
 8 mafia, cartel, syndicate, other criminal organization or eight
+
 9 threat, weapon, spy or nine
 Combine numbers and it gets a meaning in context.
 
