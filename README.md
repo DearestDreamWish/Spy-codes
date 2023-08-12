@@ -30,6 +30,17 @@ An inspiration for the spy.
 9 threat, weapon, spy or nine
 Combine numbers and it gets a meaning in context.
 
+Also:
+All the psychic can be stored differently with the will or control.  Discipline can help.  This technique can be used to repair damage.
+
+When the brain is in a conflict with something external then the brain tries to calm itself in something experienced, whatever it has experienced can make itself calm even ironic things. It's like falling back or having a backup.
+
+Avoidance technique: Stop the drama, be calm.  Prevent the development of brain drama.
+If it's not possible to stop it, then analyze it and problem solve it.
+
+Brain breaking.  If you miss something important in an important situation, forget something important or remember several things at the same time in a disorganized way.
+
+If you are in doubt and have to choose, the brain can be "split".  The greater the stress, the greater the division.  The more choices, the more divisions.
 
 Meanwhile:
 Thoughts and life stories are planted by cg, Louise and the police.
@@ -72,14 +83,3 @@ There's a power play relationship between me and my illness.
 So please tell me, am I sick? Will I die without knowing and still be more stressed with anxiety and fear. I don't do a lot to go against it, so if I die then I die without honor but as an idiot without good reasons. Loss of potential, more risks, more danger and all of it unnecessary.
 
 
-Also:
-All the psychic can be stored differently with the will or control.  Discipline can help.  This technique can be used to repair damage.
-
-When the brain is in a conflict with something external then the brain tries to calm itself in something experienced, whatever it has experienced can make itself calm even ironic things. It's like falling back or having a backup.
-
-Avoidance technique: Stop the drama, be calm.  Prevent the development of brain drama.
-If it's not possible to stop it, then analyze it and problem solve it.
-
-Brain breaking.  If you miss something important in an important situation, forget something important or remember several things at the same time in a disorganized way.
-
-If you are in doubt and have to choose, the brain can be "split".  The greater the stress, the greater the division.  The more choices, the more divisions.
